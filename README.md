@@ -4,4 +4,4 @@ Join Developers-Nigeria Group to meet other developers and answer or solve all p
 
 🏠Startup advises, ☕Coffee dates, 🎨 UX & UI help, 💬Discussing things related to PHP, JavaScript, VueJs, and C#, and ✍️mentorship.
 
-Whatsapp Me directly https://wa.link/w24igd
+Whatsapp Me directly https://wa.link/q1dmy4
